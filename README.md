@@ -1,0 +1,1 @@
+# Case-Study-A-2D-3D-Jewelry-Design-Automation-
